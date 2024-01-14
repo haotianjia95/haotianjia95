@@ -2,4 +2,22 @@
 
 我提出一个generazation的概念，贵的西装与便宜的西装布料是否区别真的很大，但是最终支付的价格区别却很大，同样的都是汽车，丰田和迈巴赫价格差距巨大，但是都要堵在路上而且也要遵守礼让的规则和交通法规，
 
+一件T恤，
+
+从棉花开始，
+棉花种植 (Cotton cultivation)
+收割 (Harvesting)
+去籽 (Ginning)
+精梳 (Combing)
+纺纱 (Spinning)
+织布 (Weaving)
+染色 (Dyeing)
+整理 (Finishing)
+裁剪 (Cutting)
+缝制 (Sewing)
+组装 (Assembly)
+质检 (Quality inspection)
+包装 (Packaging)
+配送 (Distribution)
+
 对于一个好的裁缝来说，好的布料不如好的手艺，对于一个画家来说，好的颜料不如好的想法（梵高颜料的价格），同理，对于一个人来说，衣服买的贵不等于会穿，一个人的穿衣风格，搭配思路应该与他的身份，自我认知以及社会地位联系起来，
