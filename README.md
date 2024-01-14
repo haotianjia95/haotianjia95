@@ -1,7 +1,5 @@
 # Hello There 👋
 
-I'm Haotian Jia, 
-
 Ph.D. candidate in the Department of Mechanical Engineering at Tufts University. Studying the momentum, heat, and mass transfer problems in the engineering field using the tools of applied mathematics.
 
 🎸 player, dota2 player, thought creator, shitty idea generator
