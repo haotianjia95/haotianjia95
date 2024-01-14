@@ -4,8 +4,7 @@
 
 一件T恤，
 
-从棉花开始，
-棉花种植 (Cotton cultivation)
+从棉花开始，要经过种植 (Cotton cultivation)
 收割 (Harvesting)
 去籽 (Ginning)
 精梳 (Combing)
@@ -16,8 +15,6 @@
 裁剪 (Cutting)
 缝制 (Sewing)
 组装 (Assembly)
-质检 (Quality inspection)
-包装 (Packaging)
-配送 (Distribution)
+质检 (Quality inspection)这么多步骤
 
 对于一个好的裁缝来说，好的布料不如好的手艺，对于一个画家来说，好的颜料不如好的想法（梵高颜料的价格），同理，对于一个人来说，衣服买的贵不等于会穿，一个人的穿衣风格，搭配思路应该与他的身份，自我认知以及社会地位联系起来，
