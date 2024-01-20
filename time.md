@@ -17,8 +17,8 @@
 During my time doing Ph.D. at Tufts, I have some time saving approach and tips that I find useful. 
 
 
-1. #### Multitasking
-如果可以在同一个时间做不同的工作，但这不代表一心二用来做，深度工作则需要长时间的专注，人不能在解PDE（偏微分方程）的时候同时听歌
+1. #### Multitasking 
+	如果可以在同一个时间做不同的工作，但这不代表一心二用来做，深度工作则需要长时间的专注，人不能在解PDE（偏微分方程）的时候同时听歌
 我说的是浮浅工作例如，洗澡的时候刷牙，在微波炉热饭的时候穿衣服，以及吃饭的时候看番剧，
 
 #### 利用现代化社会的优势削减任务时间
