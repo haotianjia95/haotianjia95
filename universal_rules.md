@@ -1,10 +1,36 @@
-# 关于规则
+# Regrading the rules:
 
-这个世界从来不是完美的，（正如罗翔说的 ——不能在地面上建立天国）。一个长期处于在温和的环境里的人，肯能会误以为这个世界是讲道理的，
+**This world itself is dark, chaotic, absurd, and irrational place. Only the laws of physics are universal and unchanging (and they are hidden in the darkness!)**
 
-殴打，虐待，战争，饥饿，这样的事情时时刻刻都在这个星球上发生，规则也只是限制没有手段的人，正所谓“彼窃钩者诛，窃国者为诸侯” 
+A person who has long been in a mild environment may mistakenly think that this world , but one who live in peaceful must bare in mind that there's no peaceful time, but only peaceful country.
 
-**这个世界唯一不变的是物理定律，这个世界，或者说这个宇宙本身就是黑暗，混沌，荒唐，不讲理的地方**
-法律，道德都是人为的规则，信条，全都是
+Assault, abuse, war, hunger, etc., occur constantly over this planet. the civilization is and will continue marching forward, but it is not a one step approach, 
 
-因为这个世界本身就是混沌且复杂的，私以为，稳定是内心的稳定，感情的稳定，就像毛主席所说的“与天斗，其乐无穷，与地斗，其乐无穷，与人斗，其乐无穷” 的乐观态度来迎接和解决生活的无常。
+and those rules only serve to restrain those without means to , as the saying goes, "He who steals a hook shall be hanged, while he who steals the state shall be crowned as prince."
+
+laws, moral code, all of which are human made rules, and will can , and is changing over the course of history.
+
+
+
+This world itself is chaotic and sophisticated, the stabilize of the , 
+
+the only approach would be like Mao once said, “Battling with heaven is endless joy, fighting with the earth is endless joy, and struggling with humanity is endless joy.” 的乐观态度来迎接和解决生活的无常。
+
+【江湖见闻录】：人活着，唯一受限的就是要衣食住行供给；除去法律、道德、伦理的限制，其余都是外力强加
+
+the only limiter the thinf for a human would be the 
+
+clothing, food, housing and transport (idiom), as for the rest, those are all noting but forced by suordings.
+
+##### Inequality  
+
+奴役/剥削/阶级，无论你怎么命名，人与人之间的不平等是客观存在的，如果妄想着机械降神，咔嚓把这个问题，
+
+
+
+
+##### 温热的马桶圈
+当你坐在马桶上看到马桶圈是热的，你要怎么办？
+这个世界上生存，与他人打交道是无法避免的事情，但世人都会让你失望，
+
+最终解决方案，举重若轻，游刃有余，对你来说，根本不是个事。任尔东西南北风

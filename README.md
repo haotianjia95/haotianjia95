@@ -2,7 +2,7 @@
 
 Ph.D. candidate in the Department of Mechanical Engineering at Tufts University. Studying the momentum, heat, and mass transfer problems in the engineering field using the tools of applied mathematics.
 
-🎸 player, dota2 player, thought creator, shitty idea generator
+🎸 player, dota2 player, shitty idea creator
 
 <!--
 **haotianjia95/haotianjia95** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
