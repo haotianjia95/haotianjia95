@@ -2,7 +2,7 @@
 
 **This world itself is dark, chaotic, absurd, and irrational place. Only the laws of physics are universal and unchanging (and they are hidden in the darkness!)**
 
-A person who has long been in a mild environment may mistakenly think that this world , but one who live in peaceful must bare in mind that there's no peaceful time, but only peaceful country.
+A person who has long been in a mild environment may mistakenly think that this world could make sense, but one who live in peaceful must bare in mind that there's no peaceful time, but only peaceful country.
 
 Assault, abuse, war, hunger, etc., occur constantly over this planet. the civilization is and will continue marching forward, but it is not a one step approach, 
 
@@ -12,9 +12,9 @@ laws, moral code, all of which are human made rules, and will can , and is chang
 
 
 
-This world itself is chaotic and sophisticated, the stabilize of the , 
+This world itself is chaotic and sophisticated, 
 
-the only approach would be like Mao once said, “Battling with heaven is endless joy, fighting with the earth is endless joy, and struggling with humanity is endless joy.” 的乐观态度来迎接和解决生活的无常。
+the only approach would be like Mao once said, “Battling with heaven is endless joy, fighting with the earth is endless joy, and struggling with humanity is endless joy.”, a man should not be constatn, but adapt to change, constant change, otherwise there would be a nightmare as he would found that the world keeps changing
 
 【江湖见闻录】：人活着，唯一受限的就是要衣食住行供给；除去法律、道德、伦理的限制，其余都是外力强加
 
@@ -34,3 +34,5 @@ clothing, food, housing and transport (idiom), as for the rest, those are all no
 这个世界上生存，与他人打交道是无法避免的事情，但世人都会让你失望，
 
 最终解决方案，举重若轻，游刃有余，对你来说，根本不是个事。任尔东西南北风
+
+大多数人没有高自我要求，不要对谁产生同情或者责任感，they don't fxxking care about you!
